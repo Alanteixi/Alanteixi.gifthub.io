@@ -33,3 +33,26 @@ Treure'm la carrera de Programació al cicle superior mentre tingui un treball d
 ### Habilitats i capacitats personals:
 
 Gràcies a l'esport, tinc la capacitat de ser puntual i organitzat, cosa que m'ajuda molt a l'hora d'entrenar, estudiar i treballar. També tinc una bona capacitat de comunicació gràcies -en part- a què vaig ser capità i portaveu de l'equip d'atletisme del FCB. Tanmateix, un altre capacitat a destacar és la resiliència, volent dir que puc adaptar-me lleugerament amb resultats positius davant situacions adverses, sense defallir ni sense venir-me'n avall.
+
+### Idiomes:
+
+- Català : natiu
+
+
+
+- Ângles : llengua materna
+
+
+
+- Castella : Avançat tant parlat com escrit
+
+Títol otrorgat: C2
+
+
+
+- Francès: Nivell Alt
+
+Títol otrorgat: B2
+
+
+
