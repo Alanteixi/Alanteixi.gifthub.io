@@ -21,14 +21,14 @@ Treure'm la carrera de Programació al cicle superior mentre tingui un treball d
 
 ### Historial acadèmic/ formació:
 
-(2022) Practiques a la empresa Pista Cero. 
+(2022) Practiques a la empresa [Pista Cero](https://www.pistacero.es/). 
 
 (2021) Actualment estic fent SMX a la [IFP formación](https://www.ifp.es/).
 
 
-(2021) Ajuda a l'empresa de familia.
+(2021) Ajuda a l'empresa de familia [Pasiona](https://pasiona.com/).
 
-(2017 - 2021) Educació Primaria i Secundaria a l’escola Sek Catalunya.
+(2017 - 2021) Educació Primaria i Secundaria a l’escola [Sek Catalunya](https://catalunya.sek.es/).
 
 ### Habilitats i capacitats personals:
 
