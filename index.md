@@ -17,7 +17,8 @@ Actualment, soc alumne de la IFP situada a l'Hospitalet de Llobregat fent un gra
 
 ### Objectiu personal:
 
-Treure'm la carrera de Programació al cicle superior mentre tingui un treball definit com a programador.
+Per començar, m'hauria de treure obligatòriament carrera de Programació al cicle superior mentre tingui un treball definit com a programador. Finalment, puc acabar fent una carrera o per finalitzar el treball un màster. 
+Per acabar, vull treballar de programador a Silicon Valley.
 
 ### Historial acadèmic/ formació:
 
